@@ -126,7 +126,7 @@ ClayBravo6
 [SkyNetX007](https://github.com/SkyNetX007)
 [converdario](https://github.com/converdario)
 [Maddening](https://github.com/Wildlife4700)
-
+[Takeshh_] (https:// github.com/Takeshh)
 ## Proofreading
 [Skippayy](https://github.com/skippayyyy)
 [kt0t0wh0](https://github.com/kt0t0Sudd3n)
